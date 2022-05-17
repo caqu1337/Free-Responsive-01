@@ -6,3 +6,4 @@ bez wordpressa lub kreatorów stron. Nad stroną poświęciłem troszeczke czasu
 
 [EN] Please DO NOT copy this, I don't know how to give someone a link to my project. 
 Thanks
+![Bez tytułu](https://user-images.githubusercontent.com/105730670/168850119-05875d8b-9e74-45eb-89fb-707207897896.png)
